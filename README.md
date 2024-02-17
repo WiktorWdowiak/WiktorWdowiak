@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hey there! 👋
 - 🌱 I’m currently learning UI/UX design!
 - 🔭 I’m also working on my game – **Crusty Island**.
 - 📫 How to reach me: On any of my linked social media platforms (well, maybe except of TikTok).
